@@ -11,23 +11,24 @@ I'm still learning and growing every day across different languages and technolo
 
 
 
-## **What I've Been Working On**
+## What I've Been Working On ⋅ ˚ ₊ ‧  ଳ  ‧ ₊ ˚  ⋅
 
 
 **Portfolio Website** - Coming soon! (Currently in progress, but stay tuned for projects from this semester)
 
 
 
-## **Connect With Me**
+
+## Connect With Me 𐙚 ⋆ ° ｡ ⋆ ♡
 
 
-**[LinkedIn](https://www.linkedin.com/in/nicolebustos/)** | **[Email](nicole@nicolebustos.com)** | **[Portfolio](https://www.youtube.com/watch?v=xvFZjo5PgG0)** *(In Construction)*
+**[LinkedIn](https://www.linkedin.com/in/nicolebustos/)** | **[Email](nicole@nicolebustos.com)** | **[Portfolio](https://www.youtube.com/watch?v=xvFZjo5PgG0)** *(In Construction)* <img align="right" width="80" height="168" alt="bird_2_ig-removebg-preview" src="https://github.com/user-attachments/assets/2fb26031-ea72-4994-9cb4-0e7d9c2861f2" />
+<br>
+<br>
 
+## Outside of Code 🎧ྀི ♪ ⋆ . ✮ 
 
-## **Outside of Code**
-
-
-<img align="right" src="" width="300">
+<img align="right" src="https://github.com/user-attachments/assets/aeb9ef23-f057-456b-a08c-f8cb1fdeaaf4" width="400">
 
 When I'm not programming, you'll find me:
 
@@ -35,4 +36,10 @@ When I'm not programming, you'll find me:
 * Singing or dancing
 * Drawing art or doodling
 * Watching anime
-* Playing video games
+* Playing video games /•᷅‎‎•᷄\੭
+
+<img width="150" height="190" alt="this is the one chat" src="https://github.com/user-attachments/assets/8b75bc25-ebfa-4407-965f-b522eb7c7dc4" />
+
+---
+
+## **°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･**
