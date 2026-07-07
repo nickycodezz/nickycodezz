@@ -22,7 +22,7 @@ I'm still learning and growing every day across different languages and technolo
 ## Connect With Me 𐙚 ⋆ ° ｡ ⋆ ♡
 
 
-**[LinkedIn](https://www.linkedin.com/in/nicolebustos/)** | **[Email](mailto:nicole@nicolebustos.com)** | Portfolio *(In Construction)* <img align="right" width="75" height="100" alt="bird_2_ig-removebg-preview" src="https://github.com/user-attachments/assets/2fb26031-ea72-4994-9cb4-0e7d9c2861f2" />
+**[LinkedIn](https://www.linkedin.com/in/nicolebustos/)** | **[Email](mailto:nicole@nicolebustos.com)** | Portfolio *(In Construction)* <img align="right" width="70" height="100" alt="bird_2_ig-removebg-preview" src="https://github.com/user-attachments/assets/2fb26031-ea72-4994-9cb4-0e7d9c2861f2" />
 <br>
 <br>
 
